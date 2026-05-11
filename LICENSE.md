@@ -1,4 +1,4 @@
-
+new ClickUp for Windows Integration | offline-access + tags offers the most advanced ClickUp for Windows integration, with offline-access and tags. Ideal for Windows professionals.
 
 
 
